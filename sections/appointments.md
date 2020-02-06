@@ -1,6 +1,6 @@
 ## Academic Appointments
 
-* Marcus Brody Distinguished Service Professor, Archæology, **Marshall College**,
+* Marcus qwerqwerqxwBrody Distinguished Service Professor, Archæology, **Marshall College**,
   Bedford, CT 1950–present
 * Professor, Archæology, **Barnett College**, Fairfield, NY 1937–1950
 * Associate Professor, Archæology, **Marshall College**, Bedford, CT 1935–1937
